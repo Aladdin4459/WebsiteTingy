@@ -11,5 +11,5 @@ I mainly play Valorant, Minecraft, and Apex Legends. I have several other games 
 <br>
 I can play on both PC and PS4.
 <br>
-If u want to reach me and play or something, add me on *[Discord](discordapp.com/users/Aladdin#4459)*
+If u want to reach me and play or something, add me on *[Discord](https://www.discordapp.com/users/Aladdin#4459)*
 
