@@ -13,3 +13,9 @@ I can play on both PC and PS4.
 <br>
 If u want to reach me and play or something, add me on *[Discord](https://www.discordapp.com/users/Aladdin#4459)*
 
+
+
+
+
+
+If there is anything else pls feel free to email me:<lillebrorola@gmail.com>
