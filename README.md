@@ -1,5 +1,5 @@
 # WebsiteTingy
-Hey, This is my website craeted with Github
+Hey, This is my website created with Github
 
 Hey, I am Aladdin.
 
