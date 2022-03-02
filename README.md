@@ -5,7 +5,7 @@ Hey, I am Aladdin.
 
 I might or might not know spider man.
 
-In my free time I like to do Brasillian Jiu-Jitsu and I like to play video games. 
+In my free time I like to do Brazillian Jiu-Jitsu and I like to play video games. 
 <br>
 I mainly play Valorant, Minecraft, and Apex Legends. I have several other games but i mainly play those.
 <br>
