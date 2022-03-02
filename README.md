@@ -20,4 +20,4 @@ If u want to reach me and play or something, add me on *[Discord](https://www.di
 
 If there is anything else pls feel free to Email: <lillebrorola@gmail.com>
 
-Link to my friends *[page](https://aladdin4459.github.io/WebsiteTingy/Alddin4459%second%page)*
+Link to my friends *[page](https://aladdin4459.github.io/WebsiteTingy/Alddin4459%20second%20page)*
