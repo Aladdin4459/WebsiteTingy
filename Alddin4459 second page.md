@@ -7,5 +7,5 @@ I do Brazillian-Jiu Jitsu, Groove Bass, Electric Guitar, and Piano.
 
 I play, Valorant, Minecraft, PUBG: Battlegrounds, Battlefeild V, & very rarely Halo Infinite.
 
-I also do 3D Printing. If your interested you can visit my business link at https://precision3-d.com/
+I also do 3D Printing. If your interested you can visit my business link *[click here](https://precision3-d.com/)*
 
